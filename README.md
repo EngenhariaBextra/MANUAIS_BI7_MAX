@@ -1,0 +1,1 @@
+# MANUAIS_BI7_MAX
